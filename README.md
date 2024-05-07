@@ -1,4 +1,4 @@
-<img align="center" style="margin-bottom:100px" width=100% src="https://github.com/HyP3rZer4/assets/blob/main/Banner%20Alexandre-Presentation.png" />
+![Banner Alexandre-Presentation (1)](https://github.com/Ale-Sampaio/assets/assets/121987957/370e7f91-114f-4a00-acc6-92518b221e3e)
 
 
 
