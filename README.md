@@ -1,4 +1,5 @@
-![Banner Alexandre-Presentation (1)](https://github.com/Ale-Sampaio/assets/assets/121987957/370e7f91-114f-4a00-acc6-92518b221e3e)
+![image](https://github.com/Ale-Sampaio/Ale-Sampaio/assets/121987957/efbadf4f-9877-49ff-a26e-0e8a59e7d984)
+
 
 
 
